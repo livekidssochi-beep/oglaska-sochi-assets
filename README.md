@@ -1,0 +1,1 @@
+# oglaska-sochi-assets
